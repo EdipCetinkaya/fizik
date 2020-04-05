@@ -44,21 +44,3 @@ We take our tray out of the oven and roll the sauce over it. If the water is low
 We put it in the oven again and keep it in the oven until all of our ingredients are cooked beautifully.
 
 Then we offer it to the service hot.
-
-
-
-
-MALZEMELERİ:
-350 gr. dana kıyma
-4 tane patates
-1 tane soğan
-1 tane yumurta
-2 -3 dilim bayat ekmek
-Tuz
-Karabiber
-İsteğe bağlı maydanoz
-Domates dilimleri
-SOSU:
-1 çorba kaşığı salça
-Sıvı yağ
-2 bardak su
