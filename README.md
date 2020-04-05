@@ -5,10 +5,10 @@
 
 
 
-MALZEMELERİ:
-350 gr. dana kıyma
-4 tane patates
-1 tane soğan
+### MALZEMELERİ:
+### 350 gr. dana kıyma
+### 4 tane patates
+### 1 tane soğan
 1 tane yumurta
 2 -3 dilim bayat ekmek
 Tuz
