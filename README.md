@@ -48,9 +48,6 @@ Then we offer it to the service hot.
 
 
 
-
-
-
 MALZEMELERİ:
 350 gr. dana kıyma
 4 tane patates
@@ -66,11 +63,6 @@ SOSU:
 Sıvı yağ
 2 bardak su
 Tuz
-
-
-
-
-
 
 
 YAPILIŞI:
